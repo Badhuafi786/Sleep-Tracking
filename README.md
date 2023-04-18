@@ -2,12 +2,12 @@
 
 Google Developer Profile Links
 
-Badhiriya Afreen (Team Lead) - https://g.dev/Badhiriyafreen
+K. Badhiriya Afreen (Team Lead) - https://g.dev/Badhiriyafreen
 
-Brindha -
+K. Brindha - https://g.dev/brindhabrinz
 
-Nishanthi-
+J. Nishanthi- https://g.dev/Nishanthi
 
-Yuvarani -
+M. Yuvarani - http://g.dev/yuvarani389
 
 Video Demonstration Link - https://youtu.be/R-pRBd8eSzM
